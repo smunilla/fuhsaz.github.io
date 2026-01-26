@@ -20,7 +20,9 @@ I collect a few different armies, what I collect the most of are:
     - I'm mostly stocked up on the night goblin side, but don't have a lot of the wolf riders
       - [Borgit's Beastgrabbaz](https://www.warhammer.com/en-US/shop/warhammer-underworlds-borgits-beastgrabbaz-2025)
       - [Gitmob Army Set](https://www.atomicempire.com/Item/371752)
-      - [Spearhead](https://www.warhammer.com/en-US/shop/spearhead-gloomspite-gitz-snarlpack-huntaz-2025)
+  - Spearheads for Other Armies
+      - [Skaven Warpspark Clawpack](https://www.warhammer.com/en-US/shop/spearhead-skaven-2024)
+      - [Gitmob Snarlpack Huntaz](https://www.warhammer.com/en-US/shop/spearhead-gloomspite-gitz-snarlpack-huntaz-2025)
 
 I've recently been replacing a lot of my paints with Monument Hobbies ProAcryl. Good choices are:
 

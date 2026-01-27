@@ -29,6 +29,10 @@ I've recently been replacing a lot of my paints with Monument Hobbies ProAcryl. 
   - [Expansion Set 1](https://monumenthobbies.com/products/pro-acryl-expansion-set-1)
   - [Expansion Set 2](https://monumenthobbies.com/products/pro-acryl-expansion-set-2-transparents)
 
+I can always use newer brushes as my old ones wear out
+
+  - [Wolf Bristle Brush Set](https://www.amazon.com/dp/B09PJX4HS5)
+
 ## Books
   - [How To: Absurd Scientific Advice for Common Real-World Problems](https://www.penguinrandomhouse.com/books/576760/how-to-by-randall-munroe/)
 

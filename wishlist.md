@@ -37,4 +37,5 @@ I've recently been replacing a lot of my paints with Monument Hobbies ProAcryl. 
 Providing amazon links for simplicity, but buy them from anywhere
 
   - [Wera Tools Hex Key Set](https://www.amazon.com/dp/B009ODV0OE)
-  - 
+  - [Badger 250-1 Basic Spray Gun](https://www.amazon.com/dp/B000BPZ536)
+  - [Wheeler Hammer and Punch Set](https://www.amazon.com/dp/B004SY07HU)

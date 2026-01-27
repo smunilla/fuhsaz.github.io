@@ -23,6 +23,7 @@ I collect a few different armies, what I collect the most of are:
   - Spearheads for Other Armies
       - [Skaven Warpspark Clawpack](https://www.warhammer.com/en-US/shop/spearhead-skaven-2024)
       - [Gitmob Snarlpack Huntaz](https://www.warhammer.com/en-US/shop/spearhead-gloomspite-gitz-snarlpack-huntaz-2025)
+      - [Cities of Sigmar Fusil-Platoon](https://www.warhammer.com/en-US/shop/spearhead-cities-of-sigmar-fusil-platoon-2025)
 
 I've recently been replacing a lot of my paints with Monument Hobbies ProAcryl. Good choices are:
 

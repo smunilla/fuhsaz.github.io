@@ -8,9 +8,6 @@ Failing an Ammo Check on one of a weapon’s profiles does not trigger Scarce or
 ## Psychic Familiars
 Muliple Psychic Familiars may not be stacked.
 
-## Specialists at Gang Creation
-Only one Specialist may be included in a gang at creation, regardless if they are purchased or promoted.
-
 ## Scenario Rewards
 Scenario rewards are capped at 25 credits, multiplied by the number of fighters on your Gang Roster. This includes Brutes and Hangers-On, but not Exotic Beasts, Bounty Hunters, or Hive Scum.
 
